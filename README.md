@@ -1,4 +1,4 @@
-<h1 align="center">Hello Everyone ✌️, This is Muthu Ganesh P 😎</h1>
+<h1 align="center">Hello Everyone ✌️, This is Muthu Ganesh 😎</h1>
 
 <h3 align="center">🌟 Part of courage is simple consistency 🌟</h3>
 
